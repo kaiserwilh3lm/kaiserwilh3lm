@@ -1,7 +1,7 @@
 <a href="https://ibb.co/LhCz7MSN"><img src="https://i.ibb.co/XkzZR9XY/Tumblr-l-10612298518693.png" alt="Tumblr-l-10612298518693" border="0"></a>
 
 ![](https://komarev.com/ghpvc/?username=kaiserwilh3lm&style=flat-square&color=FF0000&label=my-kaisers!) <div align="center"> 
-
+<a href="https://ibb.co/XffTmvDZ"><img src="https://i.ibb.co/XffTmvDZ/Ba-l-ks-z308-20260906131306.png" alt="Ba-l-ks-z308-20260906131306" border="0"></a>
 <a href="https://ibb.co/QF7rJWtm"><img src="https://i.ibb.co/QF7rJWtm/41d3fc7263dfd4e51ff510bb9055d2bf.jpg" alt="41d3fc7263dfd4e51ff510bb9055d2bf" border="0"></a>
 
 <a href="https://ibb.co/xKFkwrmk"><img src="https://i.ibb.co/NgTvfG1v/Tumblr-l-10877864313444.jpg" alt="Tumblr-l-10877864313444" border="0"></a>
