@@ -1,8 +1,8 @@
+![](https://komarev.com/ghpvc/?username=kaiserwilh3lm&style=flat-square&color=FF0000&label=my-kaisers!) <div align="center"> 
+
 <a href="https://ibb.co/rGwwny1h"><img src="https://i.ibb.co/hRmmp8tN/c430efc5995b99338fb893a15ef12ff0.jpg" alt="c430efc5995b99338fb893a15ef12ff0" border="0"></a>
 
 <a href="https://ibb.co/Pz9ZwX8Q"><img src="https://i.ibb.co/TqbBmj5L/d3b626e5fc83a7d05c19003b06253fd8.jpg" alt="d3b626e5fc83a7d05c19003b06253fd8" border="0"></a>
-
-![](https://komarev.com/ghpvc/?username=kaiserwilh3lm&style=flat-square&color=FF0000&label=my-kaisers!) <div align="center">
 
 Mother father gentleman!!! 
 
