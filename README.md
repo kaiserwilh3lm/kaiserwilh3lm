@@ -13,6 +13,14 @@ Mother father gentleman!!!
 
 ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔⤷⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔⤷⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔⤷⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔⤷⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔ 
 
+$$\color{red}{\text{FAMİLY!!!}}$$
+
+
+<a href="https://ibb.co/wFsZYqQ8"><img src="https://i.ibb.co/FLVkn1Yc/Ba-l-ks-z338-20260918221124.png" alt="Ba-l-ks-z338-20260918221124" border="0"></a>
+
+⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔⤷⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔⤷⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔⤷⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔⤷⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔ 
+
+
 <a href="https://ibb.co/9H5cZbk0"><img src="https://i.ibb.co/60CrXH7S/c8daeb884001eb709e2205bdac0afcc7.jpg" alt="c8daeb884001eb709e2205bdac0afcc7" border="0"></a>
 <a href="https://ibb.co/d4fN7tDM"><img src="https://i.ibb.co/0yn0QKr2/0b458353460369e3a35322617a094ac4.jpg" alt="0b458353460369e3a35322617a094ac4" border="0"></a>
 <a href="https://ibb.co/39zcdMmn"><img src="https://i.ibb.co/bMJXm25k/683fcee1752b35cb13150eec4c19da85.jpg" alt="683fcee1752b35cb13150eec4c19da85" border="0"></a>
