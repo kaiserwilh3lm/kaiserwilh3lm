@@ -1,7 +1,7 @@
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=F71616&width=435&lines=Wir+sind+verloren;Wir+sind+verloren;Wir+sind+verloren;Wir+sind+verloren;Wir+sind+verloren;Wo+alle+Stra%C3%9Fen+enden;+H%C3%B6rt+unser+Weg+nicht+auf++;Wohin+wir+uns+auch+wenden+;Die+Zeit+nimmt+ihren+Lauf)](https://git.io/typing-svg)
 
 ![](https://komarev.com/ghpvc/?username=kaiserwilh3lm&style=flat-square&color=FF0000&label=my-kaisers!) <div align="center"> 
-
+<a href="https://ibb.co/4gmK3TvV"><img src="https://i.ibb.co/n8g6tcdL/Ba-l-ks-z337-20260918212845.png" alt="Ba-l-ks-z337-20260918212845" border="0"></a>
 <a href="https://ibb.co/9myRftrR"><img src="https://i.ibb.co/7xr7T417/1d2a1ce20c45310806b3c76973864f5f.jpg" alt="1d2a1ce20c45310806b3c76973864f5f" border="0"></a>
 
 Mother father gentleman!!! 
